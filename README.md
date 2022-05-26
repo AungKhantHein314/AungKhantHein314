@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @AungKhantHein314
+- 👀 I’m interested in all kinds of technology, web development, software development, AI and cyber security.
+- 🌱 I’m currently learning web and software development, AI and cyber security.
+- 💞️ I’m looking to collaborate on a organization to where I can bring huge value and from where can provide me with great experience and growth opportunity.
+- 📫 How to reach me aungkhanthein314@gmail.com
